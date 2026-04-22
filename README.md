@@ -1,0 +1,2 @@
+# github
+tushunish uchun
